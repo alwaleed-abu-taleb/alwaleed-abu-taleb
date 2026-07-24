@@ -37,6 +37,6 @@ Some areas I’ve been working on:
 
 ## 📫 Connect With Me
 - LinkedIn:  https://www.linkedin.com/in/alwaleed-abu-taleb-20-10-2002eng?
-- Email: alwaleedabutaleb6@gmail.com
+- Email: eng.alwaleedtaleb@gmail.com
 ---
 ✨ Always eager to learn, build, and collaborate on exciting projects!
